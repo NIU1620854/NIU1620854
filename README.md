@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NIU1620854
-- Almenys no soc enginyer
+- Green Banana
 
 <img src="https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2FndrGxEeXsGkAAAAC%2Fpepe-spin.gif&f=1&nofb=1&ipt=4e633679963abea38162a884e98789ae795147166a78e50230b6c33844b628eb&ipo=images">
 
